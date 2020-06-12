@@ -1,1 +1,1 @@
-my name is Thushamini Chathushika
+my name is Thushamini Chathushika.my school is sujatha vidyalaya.
